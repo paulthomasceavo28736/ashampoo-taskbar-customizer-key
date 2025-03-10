@@ -1,0 +1,1 @@
+# ashampoo-taskbar-customizer-key
